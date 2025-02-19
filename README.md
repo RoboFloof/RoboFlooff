@@ -1,0 +1,1 @@
+RoboFloof (FLOOF) is a cutting-edge memecoin that combines the adorable world of fluffy pets with futuristic robotics. This token aims to bring together animal lovers and tech enthusiasts in a unique crypto ecosystem. RoboFloof envisions a future where advanced AI meets the comforting presence of furry companions.
